@@ -20,7 +20,7 @@ last time I play candy crush until everyday play play play. Once you play u will
 everyone can do it! I can see the potential in (某某人)
 can someone tell me...
 aiyo why this one so ugly ah? (sakura spikey)
-classy pot -> Clarissa
+classy pot -> Clarissa ( its supposed to be fussy pot i think)
 what is this question asking? LCM or HCF?
 ah? Sorry I cannot hear you with the mask on
 die die also must...
